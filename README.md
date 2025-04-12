@@ -1,4 +1,6 @@
-## Hi there 👋
+## Furkan Doğan
+
+Average UAV tech Enjoyer
 
 ![image](https://github.com/user-attachments/assets/8437b303-b48e-4deb-aa6e-eb93beeaa0aa)
 
